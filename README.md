@@ -1,0 +1,3 @@
+- 👋 oi, eu sou a thassyla
+- 📫 minhas expectativa nessa plataforma é aprender mais sobre criações e etc.
+- ⏳ minhas metas para esse ano são: praticar exercicios fisicos, me dedicar aos estudos.
